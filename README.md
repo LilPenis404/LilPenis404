@@ -1,3 +1,21 @@
+![script](https://user-images.githubusercontent.com/72821945/163728273-31f2c1a0-ef0f-4e96-9469-d5561b0cc48b.png)
+![teamapollyon](https://user-images.githubusercontent.com/72821945/163728275-e83e398d-b3ae-48da-bdca-4a4508d79b77.png)
+![w-brand](https://user-images.githubusercontent.com/72821945/163728279-c1c1bdc5-3701-470f-b923-9d8fc308caef.png)
+![where (1) - Copy](https://user-images.githubusercontent.com/72821945/163728280-efeb818a-aa00-4c1d-92e3-ec9cf81eb73a.gif)
+![where (1)](https://user-images.githubusercontent.com/72821945/163728282-f2595fc0-2029-4abc-9af4-5c091e0606a0.gif)
+![where (2) - Copy](https://user-images.githubusercontent.com/72821945/163728283-24b76045-d9e1-4e98-a4a0-0aecc4a1b788.gif)
+![where (2)](https://user-images.githubusercontent.com/72821945/163728284-490f2124-1b13-454c-8533-07fdad8977fb.gif)
+![where (3) - Copy](https://user-images.githubusercontent.com/72821945/163728285-d2b9ec24-00df-4ace-937f-3964342d28ab.gif)
+![where (3)](https://user-images.githubusercontent.com/72821945/163728286-254a4005-074f-49d7-88de-a47e1dad34fa.gif)
+![where (4) - Copy](https://user-images.githubusercontent.com/72821945/163728287-0c5c4d7e-66bc-4ec0-a5e4-6350b7c19b5a.gif)
+![where (5) - Copy](https://user-images.githubusercontent.com/72821945/163728288-2cf4739d-e428-4f9d-a914-19dd6c2caf37.gif)
+![where (6) - Copy](https://user-images.githubusercontent.com/72821945/163728289-7a1eda83-68bb-42b6-b24e-d18cea1275fc.gif)
+![where (7) - Copy](https://user-images.githubusercontent.com/72821945/163728291-f3b91c35-b888-4315-827a-cf35abb0bba9.gif)
+![where (8) - Copy](https://user-images.githubusercontent.com/72821945/163728293-c5227830-fc16-43a5-829d-547d3bd71dc4.gif)
+![where (9) - Copy](https://user-images.githubusercontent.com/72821945/163728294-a82b8fed-5e7e-436c-91ed-0d4b172631ae.gif)
+![where (10) - Copy](https://user-images.githubusercontent.com/72821945/163728295-d81090ad-358d-422e-a3c7-6548f74a8d47.gif)
+![where (11) - Copy png](https://user-images.githubusercontent.com/72821945/163728296-bc3821ba-ff9a-463a-887f-0d019ab740fe.gif)
+![where (12) - Copy](https://user-images.githubusercontent.com/72821945/163728297-f292bfe7-00fd-491f-be4a-7803994d3a10.gif)
 𝗖𝗼𝗻𝘁𝗮𝗰𝘁𝘀
 
 |Discord: regular#0369, or lreseseserse#0600
