@@ -30,7 +30,7 @@ Happy ![images (4)](https://user-images.githubusercontent.com/72821945/163728077
 ![where (7) - Copy](https://user-images.githubusercontent.com/72821945/163728183-68ef103e-2fce-40e3-a840-9cd81ac72d12.gif)
 ![where (8) - Copy](https://user-images.githubusercontent.com/72821945/163728184-9726e8cf-ebaf-4be0-82e1-5c83fb748355.gif)
 ![where (9) - Copy](https://user-images.githubusercontent.com/72821945/163728185-d750f621-59ef-4486-9676-916fe9d4a8b3.gif)
-![where (10) - Copy](https://user-images.githubusercontent.com/72821945/163728186-cd4da258-bcfe-4384-be32-ef6ac5c30fca.gif)
+![where (10) - Copy](![facepic](https://user-images.githubusercontent.com/72821945/163728224-b7b89cf7-c23c-4ce2-8718-ff68e05ef7ab.png))
 ![where (1) - Copy](https://user-images.githubusercontent.com/72821945/163728189-42eb4dd1-c08b-4578-9554-bcb5d928a374.gif)
 ![where (1)](https://user-images.githubusercontent.com/72821945/163728190-aa4c4f43-1ee8-44ee-be08-836464942d51.gif)
 ![where (2) - Copy](https://user-images.githubusercontent.com/72821945/163728191-c1e5b638-db98-4226-9d75-bd7c19da7ff1.gif)
